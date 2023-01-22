@@ -1,2 +1,2 @@
 # lenta
-Lenta-token
+Lenta-token is not scam, but very funny token.
